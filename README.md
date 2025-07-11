@@ -28,4 +28,4 @@
 选择正确的平台观看日本AV影片，不仅能够获得高清体验，还能确保用户的隐私和安全。通过正规平台，我们能够更轻松地享受优质的日本AV资源。 
 
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/ron676577/javrb5 )</span>
